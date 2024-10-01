@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Ranvillex mx
-- 👀 I’m interested in ...softwarare development
+- 👀 I’m interested in ...softwarare development graphic designing, and cybersecurity
 - 🌱 I’m currently learning ...programming
-- 💞️ I’m looking to collaborate on ...programming
-- 📫 How to reach me ...Ranvillmx@gmail.com
+- 💞️ I’m looking to collaborate on ...programming graphic design and cyber security
+- 📫 How to reach me ...Ranvillmx@gmail.com. also www.ranvillexmx.digitalarmorstudios.co.tz
 - 😄 Pronouns: ...zorblax
 - ⚡ Fun fact: ...octopuses have three hearts
 - 🌟 Creative Designer | Python Developer | Cybersecurity Enthusiast 🌐
